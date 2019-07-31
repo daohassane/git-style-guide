@@ -257,4 +257,4 @@ Agis Anastasopoulos / [@agisanast](https://twitter.com/agisanast) / http://agis.
 
 # Traduction
 
-Peio Roth / [@pierreroth64](https://twitter.com/pierreroth64)
+Peio Roth / [@peioroth64](https://twitter.com/peioroth64)
